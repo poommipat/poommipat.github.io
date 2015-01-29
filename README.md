@@ -10,4 +10,4 @@ About Me
 Contact Me  
 --------
 **Facebook** **:** [Sir'Poom Mnw](https://www.facebook.com/poom.phophet)  
-**Instagram** **:** [POOMMNW] (http://instagram.com/poommnw/)
+**Instagram** **:** [poommnw] (http://instagram.com/poommnw/)
