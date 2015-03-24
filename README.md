@@ -11,3 +11,6 @@ Contact Me
 --------
 **Facebook** **:** [Sir'Poom Mnw](https://www.facebook.com/poom.phophet)  
 **Instagram** **:** [poommnw] (http://instagram.com/poommnw/)
+   
+บันทึกการเรียนรู้วันนี้
+----------
